@@ -1,14 +1,3 @@
-**Discord Information:**
-Server: https://discord.gg/mBUCBvw3P9
-ID: kintaro_oe
-
-KOOK: https://kook.vip/RN1LFQ
-ID: kintaro_oe#3654
-
-**App Downloads:**
-https://github.com/KintaroEB/POE-2-Assistance
-
-
 **GGPX Downloads:**
 **DOWNLOAD**: [Google Drive](https://drive.google.com/drive/folders/1Aln9BIEHeK7Cgv_VJWs5UxWgE7z3N6Ba)
 **DOWNLOAD**: [Dropbox](https://www.dropbox.com/scl/fo/yeygl6hj58xlsv4gcy0rs/AKbbW6rgodwIIB2eWJDaCh0?rlkey=sk56mszepf73mjsz8n938clh0)
